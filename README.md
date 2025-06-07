@@ -1,6 +1,6 @@
 ### Olá eu sou o Ruan Nascimento 🤙
 
-▫💸Hoje trabalho no setor comerciário como vendedor
+▫💸Hoje trabalho no setor de telecom como suporte N2
 
 ▫💻Cursando ADS
 
